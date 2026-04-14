@@ -16,7 +16,6 @@ Our residential movers specialize in careful handling of household items, ensuri
 ## 🏢 Office & Commercial Moving Services
 Relocating your office? Bull Movers offers efficient office relocation services in Singapore with minimal downtime. We handle office furniture, IT equipment, and corporate assets professionally.
 
-👉 View services: https://www.bullmovers.com/services/
 👉 Learn more: https://www.bullmovers.com/office-moving-services-singapore/
 
 ## 🎹 Piano Moving Services Singapore
